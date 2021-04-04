@@ -1,1 +1,3 @@
-由于有了更好的方法。此config停更
+此日更新.
+
+Only for myself
